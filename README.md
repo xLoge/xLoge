@@ -2,6 +2,8 @@
 
 Im into computers and stuff... yeah I also like Anime and Jucie WRLD (but im like not depressive, hes just good).
 
+In case ur wondering, I also love the ganya so always down to smoke.
+
 #
 
 Im currently working on a big-integer library for C++ but progress is slow.
