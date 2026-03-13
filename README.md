@@ -10,5 +10,5 @@ Im currently working on a big-integer library for C++ but progress is slow.
 
 #
 
-If I would say im a full-stack fuck what, no just programming here and only C and C++ most of the time.\n
+If I would say im a full-stack fuck what, no just programming here and only C and C++ most of the time. #
 I hate people spaming languages and "full-stack best programmer" fuck off dude, ur not.
