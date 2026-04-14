@@ -1,7 +1,7 @@
 # Hello 👋 im a 19 year old student form Germany.
 
-Im into computers and stuff... yeah I also like Anime and Jucie Wrld (but im like not depressive, hes just good).  
-In case ur wondering, I also love the ganya so always down to smoke.
+Im into computers and stuff... yeah I also like Anime and Jucie Wrld.  
+In case ur wondering, I also love the ganja so always down to smoke.
 
 #
 
